@@ -7,4 +7,7 @@
 # Email: sharmakhushi9183919@gmail.com 
 # Photograph:
 # Day 1 :
-#
+# 🏫 Reached college campus 
+# . Arrived at the college at 8:30 Am
+
+
