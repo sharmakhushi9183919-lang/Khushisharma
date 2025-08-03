@@ -53,6 +53,13 @@
 #### Guest Arrival:
 ###### 1.Manish Kumar,Shivam Sharma 
 ###### They gave us information about buddy4study.com .They also gave the information about satya scholarship program.They also insisted us to take participate in this program.
-
+###### 2. 
+###### He gave the information regarding food.He said that eat healthy food instead of junk food.
+# Day:3 
+#### Speaker: Dr.Jaswinder Singh 
+##### He is a incharge of IAPT.He is the one in Punjab who has National award by president.
+###### overview :He also taught us science in funnier way, which was very interesting.He also connected us with god.
+#### speaker:Dr.priya Darshni 
+###### overview: she told us about the Human values.she said only money and physical facilities are not important for happiness.apart from that our understanding and relationships are more important than these things.
 
 
