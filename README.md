@@ -7,7 +7,19 @@
 ## Email: sharmakhushi9183919@gmail.com 
 ## Photograph:
 # Day 1 :
-####  🏫 Reached college campus 
-####  Arrived at the college at 8:30 Am
+##  1. 🏫 Reached college campus 
+####  .Arrived at the college at 8:30 Am.
+## 2.🛕Visit to Gurdwara Sahib 
+#### .Participated in Kirtan recitation.
+#### . Kirtan was beautifully arranged by Ludhiana jatha Group.
+## 3. Boy's Hostel Visit 
+#### . Reached Boy's hostel No.2.
+#### . Enjoyed tea and snacks with the group.
+## 4.🎟️ Welcome Kit collection 
+#### .Moved towards the auditorium area.
+#### . Collected the welcome kit provided by the organizers.
+## 5.🎤 Auditorium Entry 
+#### . Finally entered the auditorium for the scheduled event.
+
 
 
