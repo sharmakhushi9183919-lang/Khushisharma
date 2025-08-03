@@ -5,7 +5,8 @@
 ## Registration no: 
 ## Mobile no:7717695206
 ## Email: sharmakhushi9183919@gmail.com 
-## Photograph:
+## Photograph:![1000001034](https://github.com/user-attachments/assets/1de9cd9b-aee0-466b-b289-93ccdb320564)
+
 # Day 1 :
 ##  1. 🏫 Reached college campus 
 ####  .Arrived at the college at 8:30 Am.
