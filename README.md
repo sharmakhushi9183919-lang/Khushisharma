@@ -44,8 +44,15 @@
 ##### 2.Shree Ravinder Garg is a chief engineer at Municipal corporation Ludhiana.
 #### Combined overview: 
 ##### They told us that during the time of his campus he had the opportunity to learn from some of the best professors in the field. They challenged me,supported me,helped me to grow into the person I am today. They also said that we are very lucky to have these kinds of teachers in our life.
-
-
+# Ending of the Induction program 
+#### After their speech 💬,we reached the end of our induction program.
+# Day:2 
+##### 1.Arrived at the college campus at 9:30 am.
+##### 2. From 9:30 to 10:30 we gave the English proficiency test.
+##### 3.From 10:30 to 11:30 we gave the maths proficiency test,then we went for the auditorium at 1:30 
+#### Guest Arrival:
+###### 1.Manish Kumar,Shivam Sharma 
+###### They gave us information about buddy4study.com .They also gave the information about satya scholarship program.They also insisted us to take participate in this program.
 
 
 
