@@ -42,7 +42,10 @@
 # Guest of honour:
 ##### 1.Rakesh Kumar is a alumni of 1991batch currently he is serving as ADC Ludhiana.
 ##### 2.Shree Ravinder Garg is a chief engineer at Municipal corporation Ludhiana.
-##### Combined overview: 
+#### Combined overview: 
+##### They told us that during the time of his campus he had the opportunity to learn from some of the best professors in the field. They challenged me,supported me,helped me to grow into the person I am today. They also said that we are very lucky to have these kinds of teachers in our life.
+
+
 
 
 
