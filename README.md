@@ -54,7 +54,7 @@
 #### Guest Arrival:
 ###### 1.Manish Kumar,Shivam Sharma 
 ###### They gave us information about buddy4study.com .They also gave the information about satya scholarship program.They also insisted us to take participate in this program.
-###### 2. 
+###### 2. Dr.Arashdeep Singh 
 ###### He gave the information regarding food.He said that eat healthy food instead of junk food.
 # Day:3 
 #### Speaker: Dr.Jaswinder Singh 
