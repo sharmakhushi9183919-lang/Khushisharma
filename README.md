@@ -63,4 +63,10 @@
 #### speaker:Dr.priya Darshni 
 ###### overview: she told us about the Human values.she said only money and physical facilities are not important for happiness.apart from that our understanding and relationships are more important than these things.
 # Day:4 
+###### chemistry lecture was given by prof.Mandeep Kaur.Her class was amazing.she taught us basics of chemistry.she asked many questions from us.so,it was a really nice session.
+###### Then there was a p2p class in which our seniors taught us some basics of c++.
+###### Then there was also Dr.Priya Dharshni Mam's lecture upon Universal Human values, which was amazing lecture.she taught us lot of things specially related to life 
+###### Then there was a session which was conducted by causmic club.
+# Day:5 
+
 
