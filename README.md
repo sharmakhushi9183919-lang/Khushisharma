@@ -68,5 +68,9 @@
 ###### Then there was also Dr.Priya Dharshni Mam's lecture upon Universal Human values, which was amazing lecture.she taught us lot of things specially related to life 
 ###### Then there was a session which was conducted by causmic club.
 # Day:5 
+###### first lecture was taken by Prof.Manjot Kaur.she did a introduction session.she also tells us about marking system of papar.
+###### second lecture was delivered by Prof.Harpreet Kaur.she tells us about some basic concepts of physics.she also gave us a question to try.she gave us Home work as well.
+###### Third lecture was delivered by Prof.Gagandeep Kaur she simply tells the basic of mathematics and she also tells about the college facilities. 
+
 
 
