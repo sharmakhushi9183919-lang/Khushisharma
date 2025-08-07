@@ -71,6 +71,12 @@
 ###### first lecture was taken by Prof.Manjot Kaur.she did a introduction session.she also tells us about marking system of papar.
 ###### second lecture was delivered by Prof.Harpreet Kaur.she tells us about some basic concepts of physics.she also gave us a question to try.she gave us Home work as well.
 ###### Third lecture was delivered by Prof.Gagandeep Kaur she simply tells the basic of mathematics and she also tells about the college facilities. 
+# Day:6 
+###### chief guest: Gurucharan Singh Greawal sir the alumini of Nankana Sahib.He told us the teachings of Shri Guru Nanak Dev Ji.He told us that nowadays education has become a business.He also said that always respect your professors and always stand with right.
+###### Lakhan Singh:He is CML incharge.He helps in hostelic development.He also give the tips how we can improve our communication skills.He also tells us about NPTEL alos Swayam and its courses.
+# Day:7 
+######            : Firstly he tells us how we can develop our personality.He also addressed the students about sports system.our college has around 98050 books.He also tells us NSS group that is National Service Scheme and prof.Jaswir Singh is the co ordinator of NSS group.He also give information about scholarship.
+###### Dr.Amit Kamra: He addressed the students about the Digital marketing club.He also shows his work on projector.He also encourage the students to join it.
 
 
 
