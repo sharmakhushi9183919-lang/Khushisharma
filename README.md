@@ -1,7 +1,7 @@
 # Induction program 2025 
 ##  Name : Khushi Sharma 
 ## Father's name: Budheshwar sharma 
-## Branch: Computer science 
+## Branch: Computer science and Engineering.
 ## Registration no: 25105604
 ## Mobile no:7717695206
 ## Email: sharmakhushi9183919@gmail.com 
