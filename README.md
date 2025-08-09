@@ -2,7 +2,7 @@
 ##  Name : Khushi Sharma 
 ## Father's name: Budheshwar sharma 
 ## Branch: Computer science 
-## Registration no: 
+## Registration no: 25105604
 ## Mobile no:7717695206
 ## Email: sharmakhushi9183919@gmail.com 
 ## Photograph:![1000001034](https://github.com/user-attachments/assets/1de9cd9b-aee0-466b-b289-93ccdb320564)
@@ -27,16 +27,19 @@
 ##### overview:He addressed the students regarding the various facilities available at the college including labs, libraries , sports, students welfare programs ensuring that new students are aware of the resources they can avail .
 ### session:2 
 ##### speaker:Dr.Harpreet Kaur Grewal.
-##### overview:
+##### overview: she is the H.O.D of applied science.she addressed the students how to be a good human being.
+##### she said about her experience.
+###### she told us to utilise our time wisely.
+###### It was really nice session.
 
 
 
 ### session:3 
 ##### speaker:Dr Sahazpal Singh 
-##### overview: 
-
-
-
+##### overview: He is the principal of our college.
+###### He told us about the faculty members.
+###### He also said that the environment of our college is best.
+###### It was also nice session.
 ## Guest speaker:
 #### 1.Dr.Maheshinder Grewal 
 ##### overview:He is ex-cabinet minister of Punjab as well as he is a senior trustee of Nankana Sahib.
