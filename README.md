@@ -75,8 +75,13 @@
 ###### chief guest: Gurucharan Singh Greawal sir the alumini of Nankana Sahib.He told us the teachings of Shri Guru Nanak Dev Ji.He told us that nowadays education has become a business.He also said that always respect your professors and always stand with right.
 ###### Lakhan Singh:He is CML incharge.He helps in hostelic development.He also give the tips how we can improve our communication skills.He also tells us about NPTEL alos Swayam and its courses.
 # Day:7 
-######            : Firstly he tells us how we can develop our personality.He also addressed the students about sports system.our college has around 98050 books.He also tells us NSS group that is National Service Scheme and prof.Jaswir Singh is the co ordinator of NSS group.He also give information about scholarship.
+######   Dr.parminder Singh         : Firstly he tells us how we can develop our personality.He also addressed the students about sports system.our college has around 98050 books.He also tells us NSS group that is National Service Scheme and prof.Jaswir Singh is the co ordinator of NSS group.He also give information about scholarship.
 ###### Dr.Amit Kamra: He addressed the students about the Digital marketing club.He also shows his work on projector.He also encourage the students to join it.
+###### Dr.Randir Singh: He addressed the students about examination.He also gave us the information about how much marks of our MST and final exams.Basically he properly addressed the students about marks distribution system.
+###### After his lecture there was break and then we went for IDCard formation.
+# Day:8 
+##### prof.Harpreet Kaur:she takes our BEEE class.She taught us very well.
+##### prof.Karan Bhalla:He took our chemistry class.He taught us chemistry very well.
 
 
 
